@@ -1,1 +1,1 @@
-<https://erazmys.github.io/rsschool-cv/cv>
+<https://erazmys.github.io/rsschool-cv/cv>
